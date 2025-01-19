@@ -1,5 +1,4 @@
 
-Hi im Konata!
 Any INT dont worry :D
 C+H 
 mostly at docks or CH area 
